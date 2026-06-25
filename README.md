@@ -4,4 +4,4 @@
 ![image alt](https://github.com/flyingbulletsindesertflames-ai/day-22/blob/9a1ddf32256f570cb0c89986856f45a7cf3e9865/Screenshot_25-6-2026_115215_claude.ai.jpeg)
 ![image alt](https://github.com/flyingbulletsindesertflames-ai/day-22/blob/f46127892a29d55e516a38e6cb637dba659cda8c/Screenshot_25-6-2026_115235_claude.ai.jpeg)
 ![image alt](https://github.com/flyingbulletsindesertflames-ai/day-22/blob/60745d28d7ace7447b8e1e0b0a5b92b5c6d30801/Screenshot_25-6-2026_115347_claude.ai.jpeg)
-![image alt](image_url)
+![image alt](https://github.com/flyingbulletsindesertflames-ai/day-22/blob/034ce761ca8b4ef1f90b82337745ddc898ac2144/Screenshot_25-6-2026_11556_claude.ai.jpeg)
